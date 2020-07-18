@@ -13,6 +13,8 @@ My credentials include a
 
 **Links:**
 * [LinkedIn](https://www.linkedin.com/in/beatriz-bernardo-7849b935/)
+* [Medium](https://medium.com/@bia.bernardo85)
+
 
 
 ## Projetos:
